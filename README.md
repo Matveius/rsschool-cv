@@ -1,1 +1,1 @@
-gi
+https://Matveius.github.io/rsschool-cv/cv
